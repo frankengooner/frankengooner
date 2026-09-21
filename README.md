@@ -1,4 +1,4 @@
- <p align=center><img width="1200" height="1466" alt="IMG_3858" src="https://github.com/user-attachments/assets/068acaa7-79e1-49d5-9119-ec90d3fec061" />
+ <p align=center><img width="1280" height="931" alt="IMG_7517" src="https://github.com/user-attachments/assets/0809a1d7-f303-4910-a085-1bc053bc69ff" />
 <p align=center><ins><sup>ART CREDIT TO FRIJOLEBEAN ON INSTAGRAM</sup></ins>
 <p align=center><ins><sup><b>HIHI , , my name is meesha, but you can call me munch!!</b></sup></ins> 
 <p align=center> <ins><sup><b>if you’re in the supernatural fandom, please interact!! , , , ,  Same goes for ⬎  </b></sup></ins>
