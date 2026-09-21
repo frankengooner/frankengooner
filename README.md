@@ -1,3 +1,5 @@
+<p align=center><img width="266" height="11" alt="IMG_3864" src="https://github.com/user-attachments/assets/3e02ac99-c7ce-4960-a94f-9f84100db33f" />
+
  <p align=center><img width="308" height="308" alt="IMG_3858" src="https://github.com/user-attachments/assets/a90ef44d-d8a3-4bc2-b108-b80b4c48cf36" />
 <p align=center><ins><sup>✦ ART CREDIT TO FRIJOLEBEAN ON INSTAGRAM</sup></ins>
 <p align=center><ins><sup><b>✦ HIHI , , my name is meesha, but you can call me munch!!</b></sup></ins> 
